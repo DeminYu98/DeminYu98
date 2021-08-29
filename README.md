@@ -1,7 +1,7 @@
 
 
 ### 👋 Hi, I’m @DeminYu98 ###
-a student🎒 at HIT and AI rookie👨‍💻.
+a student🎒 and AI rookie👨‍💻 at HIT.
 
 Here are little things about me:
 - ⌨️ Coder, NLPer, Knowledge explorer.
