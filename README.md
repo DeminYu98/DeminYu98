@@ -5,7 +5,7 @@ a student🎒 at HIT and AI rookie👨‍💻.
 
 Here are little things about me:
 - ⌨️ Coder, NLPer, Knowledge explorer.
-- 🏀 Loving sports ⛹ 🏸 🏋 🏃‍♂️, fan of Derrick Rose🌹.
+- 🏀 Enjoy sports ⛹ 🏸 🏋 🏃‍♂️, fan of Derrick Rose🌹.
 - 📖 Detective novels and science fiction lover, fan of Sherlock Holmes🕵, obsessed with 《三体》.
 - 😀 1.9 meters(5'9") tall, good eyesight, desire to be stronger💪.
 
